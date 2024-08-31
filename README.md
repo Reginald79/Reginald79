@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Reginald79
-- 👀 I’m interested in Web Development,AI Dev. and Cybersecurity
+- 👀 I’m interested in Web Development and Cybersecurity
 - 🌱 I’m currently learning a couple of languages to enhance my skills.
 - 💞️ I’m looking to collaborate... 
 - 📫 How to reach me; amaahreginaldd@gmail.com
